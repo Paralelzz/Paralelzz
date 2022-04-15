@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Paralelzz
+- 👀 I’m interested in coding RLua
+- 🌱 I’m currently learning RLua
+- 💞️ I’m looking to collaborate on Roblox
+- 📫 How to reach me: Coolmanithecity21@protonmail.com, Paralel$$#7800
